@@ -1,1 +1,2 @@
-# Dewi-Yulia-Putri_25-565271-PA-23838_MagangGMRT_Day3
+Nama: Dewi Yulia Putri
+NIM: 25/565271/PA/23838
